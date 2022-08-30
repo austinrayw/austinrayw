@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Austin!
+- 👀 I’m interested in gaming, streaming and tech
+- 🌱 I’m currently learning Python
+- 📫 How to reach me ; overlordhei@yahoo.com
